@@ -1,0 +1,62 @@
+@import url('https://fonts.googleapis.com/css2?family=Roboto:ital,wght@0,400..800;1,400..800&family=Lora:ital,wght@0,400..700;1,400..700&display=swap');
+
+
+@tailwind base;
+@tailwind components;
+@tailwind utilities;
+
+body {
+  @apply font-custom;
+  background-color: antiquewhite;
+}
+
+.markdown > * {
+  all: revert;
+  font-family: "Roboto", sans-serif;
+  font-optical-sizing: auto;
+  font-weight: 400;
+  font-style: normal;
+  line-height: 1.6;
+}
+
+.markdown h1,
+.markdown h2,
+.markdown h3,
+.markdown h4,
+.markdown h5,
+.markdown h6 {
+  margin-top: 1.5em;
+}
+
+.markdown p {
+  margin: 1em 0;
+}
+
+.markdown a {
+  color: #3182ce;
+  text-decoration: underline;
+}
+
+.markdown code {
+  background-color: #f5f5f5;
+  padding: 2px 4px;
+  border-radius: 4px;
+}
+
+.markdown ul,
+.markdown ol {
+  margin-left: 1em;
+  margin-bottom: 1em;
+}
+
+.markdown blockquote {
+  border-left: 4px solid #ccc;
+  padding-left: 1em;
+  color: #666;
+  margin: 1.5em 0;
+}
+
+/* Add this rule to color italic text red */
+.markdown em {
+  color: firebrick;
+}
