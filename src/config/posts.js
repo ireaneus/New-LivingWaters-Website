@@ -8,6 +8,13 @@ export const postFiles = [
     category: 'sermons'
   },
   {
+    file: '/posts/PersonalStatement.md',
+    slug: 'personal-post',
+    title: 'Personal Statement of Faith',
+    date: 'Oct. 23, 2024',
+    category: 'articles'
+  },
+  {
     file: '/posts/Matthew.md',
     slug: 'matthew-post',
     title: 'Matthew Chapters Breakdown',
