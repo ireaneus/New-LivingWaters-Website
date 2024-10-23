@@ -18,77 +18,76 @@ While there is but one true interpretation of each passage, there are many appli
 ---
 
 ## The Nature of God
-I believe that God is eternal, infinite, and unchanging, existing as one essence in three distinct persons: Father, Son, and Holy Spirit. *"Before the mountains were born or You gave birth to the earth and the world, even from everlasting to everlasting, You are God" (Psalm 90:2)*. He is omnipotent, omnipresent, and omniscient, possessing all power and knowledge, and *"His sovereignty rules over all" (Psalm 103:19)*. God is perfectly holy and just, *"Holy, holy, holy, is the Lord of hosts, the whole earth is full of His glory" (Isaiah 6:3)*, and His judgments are always righteous.
+I believe that God is eternal, infinite, and unchanging, existing as one essence in three distinct persons: Father, Son, and Holy Spirit. *"Before the mountains were born or You gave birth to the earth and the world, even from everlasting to everlasting, You are God"* **(Psalm 90:2)**. He is omnipotent, omnipresent, and omniscient, possessing all power and knowledge, and *"His sovereignty rules over all"* **(Psalm 103:19)**. God is perfectly holy and just, *"Holy, holy, holy, is the Lord of hosts, the whole earth is full of His glory"* **(Isaiah 6:3)**, and His judgments are always righteous.
 
-God is also good, the source of all that is good, as it is written, "Taste and see that the Lord is good; How blessed is the man who takes refuge in Him!" (Psalm 34:8). He is self-existent, declaring, "I AM WHO I AM" (Exodus 3:14), having no beginning or end, and "His throne is established in the heavens" (Psalm 103:19).
+God is also good, the source of all that is good, as it is written, *"Taste and see that the Lord is good; How blessed is the man who takes refuge in Him!"* **(Psalm 34:8)**. He is self-existent, declaring, *"I AM WHO I AM"* **(Exodus 3:14)**, having no beginning or end, and *"His throne is established in the heavens"* **(Psalm 103:19)**.
 
 ---
 
 ### The Nature of God: Attributes of God
 **Eternal**: God exists outside of time, without beginning or end.  
-*"Before the mountains were born or You gave birth to the earth and the world, even from everlasting to everlasting, You are God."* (Psalm 90:2)
+*"Before the mountains were born or You gave birth to the earth and the world, even from everlasting to everlasting, You are God."* **(Psalm 90:2)**
 
 **Infinite**: God is limitless in His presence, knowledge, and power, filling all things.  
-*"Can a man hide himself in hiding places so I do not see him? declares the Lord. Do I not fill the heavens and the earth?"* (Jeremiah 23:24)
+*"Can a man hide himself in hiding places so I do not see him? declares the Lord. Do I not fill the heavens and the earth?"* **(Jeremiah 23:24)**
 
 **Immutable**: God is unchanging in His nature, character, and promises.  
-*"For I, the Lord, do not change."* (Malachi 3:6)
+*"For I, the Lord, do not change."* **(Malachi 3:6)**
 
-**Omnipotent**: God is all-powerful, able to do all that He wills.  
-*"I know that You can do all things, and that no purpose of Yours can be thwarted."* (Job 42:2)
+**Omnipotent**: I believe that God is sovereign over all creation, doing whatever He pleases in heaven, earth, and the seas. *'For I know that the Lord is great and that our Lord is above all gods. Whatever the Lord pleases, He does, in heaven and in earth, in the seas and in all deeps.'* **(Psalm 135:5-6)**
 
 **Omnipresent**: God is present everywhere, and there is no place where He is not.  
-*"Where can I go from Your Spirit? Or where can I flee from Your presence?"* (Psalm 139:7-10)
+*"Where can I go from Your Spirit? Or where can I flee from Your presence?"* **(Psalm 139:7-10)**
 
 **Omniscient**: God knows all things, past, present, and future.  
-*"I am God, and there is no one like Me, declaring the end from the beginning."* (Isaiah 46:9-10)
+*"I am God, and there is no one like Me, declaring the end from the beginning."* **(Isaiah 46:9-10)**
 
 **Holy**: God is absolutely pure, set apart from sin, and perfectly righteous.  
 *"Holy, holy, holy is the Lord of hosts, the whole earth is full of His glory."* (Isaiah 6:3)
 
 **Just**: God's ways are always right and fair; He is the standard of justice.  
-*"The Rock, His work is perfect, for all His ways are just."* (Deuteronomy 32:4)
+*"The Rock, His work is perfect, for all His ways are just."* **(Deuteronomy 32:4)**
 
 **Good**: God is the source of all goodness, and He acts with kindness and mercy.  
-*"Taste and see that the Lord is good; How blessed is the man who takes refuge in Him!"* (Psalm 34:8)
+*"Taste and see that the Lord is good; How blessed is the man who takes refuge in Him!"* **(Psalm 34:8)**
 
 **Sovereign**: God exercises supreme authority over all creation.  
-*"The Lord has established His throne in the heavens, and His sovereignty rules over all."* (Psalm 103:19)
+*"The Lord has established His throne in the heavens, and His sovereignty rules over all."* **(Psalm 103:19)**
 
 **Self-existent**: God exists by His own power and is dependent on nothing else.  
-*"I AM WHO I AM."* (Exodus 3:14)
+*"I AM WHO I AM."* **(Exodus 3:14)**
 
 ---
 
 ### **The Nature of God: The Trinity**
 
-I believe in one God who exists eternally in three distinct persons—Father, Son, and Holy Spirit. *"Hear, O Israel! The Lord is our God, the Lord is one!"* (Deuteronomy 6:4). Each person of the Trinity is fully God, sharing the same divine essence and nature, yet they are distinct in person and role. The Father, the Son, and the Holy Spirit are co-equal in all their attributes, including holiness, justice, and mercy, and together they reveal the fullness of God's perfect character.
+I believe in one God who exists eternally in three distinct persons—Father, Son, and Holy Spirit. *"Hear, O Israel! The Lord is our God, the Lord is one!"* **(Deuteronomy 6:4)**. Each person of the Trinity is fully God, sharing the same divine essence and nature, yet they are distinct in person and role. The Father, the Son, and the Holy Spirit are co-equal in all their attributes, including holiness, justice, and mercy, and together they reveal the fullness of God's perfect character.
 
-The Scriptures present the unity and distinctiveness of the three persons. Jesus commanded His followers to *"baptize in the name of the Father and the Son and the Holy Spirit,"* (Matthew 28:19), affirming the threefold nature of God. The heavenly vision in Revelation proclaims, *"Holy, Holy, Holy,"* reflecting the holiness of the Father, Son, and Holy Spirit, and *"the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit,"* is a benediction highlighting their relational unity (2 Corinthians 13:14).
+The Scriptures present the unity and distinctiveness of the three persons. Jesus commanded His followers to *"baptize in the name of the Father and the Son and the Holy Spirit,"* **(Matthew 28:19)**, affirming the threefold nature of God. The heavenly vision in Revelation proclaims, *"Holy, Holy, Holy,"* reflecting the holiness of the Father, Son, and Holy Spirit, and *"the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit,"* is a benediction highlighting their relational unity **(2 Corinthians 13:14)**.
 
-Though they are distinct in person, the Father, Son, and Holy Spirit are united in will and purpose. *"There are three that bear witness in heaven: the Father, the Word, and the Holy Spirit; and these three are one."* (1 John 5:7). Together, they operate in perfect harmony, fulfilling the divine plan in creation, redemption, and sanctification.
+Though they are distinct in person, the Father, Son, and Holy Spirit are united in will and purpose. *"There are three that bear witness in heaven: the Father, the Word, and the Holy Spirit; and these three are one."* **(1 John 5:7)**. Together, they operate in perfect harmony, fulfilling the divine plan in creation, redemption, and sanctification.
 
 ---
 
 ### **Scriptural Basis for the Trinity**:
 
 - **One God**: The oneness of God is foundational, affirming that there is only one divine being.  
-  *"Hear, O Israel! The Lord is our God, the Lord is one!" (Deuteronomy 6:4)*
+  *"Hear, O Israel! The Lord is our God, the Lord is one!"* **(Deuteronomy 6:4)**
 
 - **Three Persons**: The distinct persons of the Godhead are revealed in Jesus' command to baptize in the name of the Father, Son, and Holy Spirit.  
-  *"Go therefore and make disciples of all the nations, baptizing them in the name of the Father and the Son and the Holy Spirit." (Matthew 28:19)*
+  *"Go therefore and make disciples of all the nations, baptizing them in the name of the Father and the Son and the Holy Spirit."* **(Matthew 28:19)**
 
 - **Unity in Essence**: Though distinct in person, the Father, Son, and Holy Spirit share the same divine nature.  
-  *"For there are three that bear witness in heaven: the Father, the Word, and the Holy Spirit; and these three are one." (1 John 5:7)*
+  *"For there are three that bear witness in heaven: the Father, the Word, and the Holy Spirit; and these three are one."* **(1 John 5:7)***
 
 - **Distinct Persons in Relationship**: Each person of the Trinity is involved in a relationship with believers and with one another, as expressed in the apostolic benediction.  
-  *"The grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit, be with you all." (2 Corinthians 13:14)*
+  *"The grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit, be with you all."* **(2 Corinthians 13:14)**
 
 ---
 
 ### **The Holiness of the Trinity**
 
-The holiness of God is central to His nature, and each person of the Trinity—Father, Son, and Holy Spirit—is perfectly holy, set apart in absolute purity and moral perfection. In the heavenly visions of Scripture, God is worshiped with the thrice-repeated acclamation, *"Holy, Holy, Holy is the Lord God, the Almighty, who was and who is and who is to come."* (Revelation 4:8). This threefold declaration emphasizes the infinite holiness of the Father, the Son, and the Holy Spirit, affirming their co-equality in divine holiness. The triune God is the source and standard of all that is holy, entirely distinct from creation and without any imperfection.
+The holiness of God is central to His nature, and each person of the Trinity—Father, Son, and Holy Spirit—is perfectly holy, set apart in absolute purity and moral perfection. In the heavenly visions of Scripture, God is worshiped with the thrice-repeated acclamation, *"Holy, Holy, Holy is the Lord God, the Almighty, who was and who is and who is to come."* **(Revelation 4:8)**. This threefold declaration emphasizes the infinite holiness of the Father, the Son, and the Holy Spirit, affirming their co-equality in divine holiness. The triune God is the source and standard of all that is holy, entirely distinct from creation and without any imperfection.
 
 God’s holiness is reflected individually in each person of the Trinity, revealing the fullness of His pure and righteous character. The Father’s holiness is seen in His utter separation from evil, the Son's holiness is demonstrated through His sinless life and sacrificial atonement, and the Holy Spirit’s holiness is evident in His sanctifying work in believers.
 
@@ -98,15 +97,15 @@ God’s holiness is reflected individually in each person of the Trinity, reveal
 
 - **The Holiness of the Father**:  
   God's holiness is manifested in His perfect separation from sin and inability to approve evil.  
-  *"Your eyes are too pure to approve evil, and You cannot look on wickedness with favor." (Habakkuk 1:13)*  
+  *"Your eyes are too pure to approve evil, and You cannot look on wickedness with favor."* **(Habakkuk 1:13)**  
 
 - **The Holiness of the Son**:  
   Jesus Christ, the Lamb of God, was without blemish or spot, living a sinless life to redeem humanity.  
-  *"But with the precious blood of Christ, as of a lamb without blemish and without spot." (1 Peter 1:19)*  
+  *"But with the precious blood of Christ, as of a lamb without blemish and without spot."* **(1 Peter 1:19)**  
 
 - **The Holiness of the Holy Spirit**:  
   The Holy Spirit dwells within believers, sanctifying them and making them holy, as the temple of God.  
-  *"Do you not know that you are a temple of God and that the Spirit of God dwells in you? ... For the temple of God is holy, and that is what you are." (1 Corinthians 3:16-17)*  
+  *"Do you not know that you are a temple of God and that the Spirit of God dwells in you? ... For the temple of God is holy, and that is what you are."* **(1 Corinthians 3:16-17)**  
 
 ---
 
@@ -173,7 +172,7 @@ The Holy Spirit empowers believers for service, imparts spiritual gifts, and pro
 
 I believe that God the Father is actively involved in His creation through His sovereign works. These works include creation, providence, redemption, and judgment, all of which display His power, wisdom, and goodness. 
 
-- **Creation**: God spoke the universe into existence, *"In the beginning God created the heavens and the earth"* **(Genesis 1:1)**, and made all things visible and invisible by His Word (Colossians 1:16). He continues to uphold and sustain all creation, *"upholding all things by the word of His power"* **(Hebrews 1:3)**.
+- **Creation**: God spoke the universe into existence, *"In the beginning God created the heavens and the earth"* (Genesis 1:1), and made all things visible and invisible by His Word (Colossians 1:16). He continues to uphold and sustain all creation, *"upholding all things by the word of His power"* (Hebrews 1:3).
 
 - **Providence**: I believe that God not only created all things but continues to sustain and govern the universe by His sovereign will. *'He causes the vapors to ascend from the ends of the earth; Who makes lightnings for the rain, Who brings forth the wind from His treasuries.'* **(Psalm 135:7)**
 
@@ -205,9 +204,10 @@ I believe that the **Decrees of God** are His eternal ordinances, established in
   *"He predestined us to adoption as sons through Jesus Christ to Himself, according to the kind intention of His will."* (Ephesians 1:5)  
   *"All the inhabitants of the earth are accounted as nothing, but He does according to His will in the host of heaven."* (Daniel 4:35)  
 
-- **Inevitability and Efficacy of God's Will**: What God has decreed will inevitably come to pass, and nothing can thwart His purposes. His decrees are always effective and will be fulfilled.  
+- **Inevitability and Efficacy of God's Will**:  The decrees of God are by His sovereign will, and nothing can hinder them. *'Whatever the Lord pleases, He does, in heaven and in earth, in the seas and in all deeps.'* **(Psalm 135:6)**  
   *"For who can resist His will?"* (Romans 9:19)  
-  *"My counsel shall stand, and I will accomplish all my purpose."* (Isaiah 46:10, ESV)  
+  *"My counsel shall stand, and I will accomplish all my purpose."* (Isaiah 46:10, ESV)
+ 
 
 - **Consistency with God's Holy Nature**: God's decrees are always perfectly consistent with His holy character. He remains pure and righteous in all His plans.  
   *"Your eyes are too pure to approve evil, and You cannot look on wickedness with favor."* (Habakkuk 1:13)  
@@ -269,7 +269,84 @@ In our original state, Adam and Eve were without sin and enjoyed a perfect relat
 
 However, through the Fall, humanity's moral and spiritual likeness to God has been corrupted, resulting in the universal sinfulness of all people. *"For all have sinned and fall short of the glory of God."* **(Romans 3:23)**. Yet, through Christ, the image of God is being restored in believers, and it will be perfected at His return. *"But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as from the Lord, the Spirit."* **(2 Corinthians 3:18)**. *"Just as we have borne the image of the earthy, we will also bear the image of the heavenly."* **(1 Corinthians 15:49)**.
 
-7. What do you believe about sin?
+---
+
+### **What I Believe About Sin**
+
+I believe that **sin** is any failure to conform to the moral law of God, in action, attitude, or nature. Sin originated with Satan's rebellion against God and entered the human race through Adam's disobedience in the Garden of Eden. *"Through one man sin entered into the world, and death through sin, and so death spread to all men, because all sinned."* **(Romans 5:12). Sin separates humanity from God, corrupting the **image of God** in us, and results in both physical and spiritual death. *"For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord."* (Romans 6:23).
+
+### **The Origin and Nature of Sin**
+
+- **The Origin of Sin**:  
+  Sin began with Satan's rebellion against God and subsequently entered the human race through Adam and Eve's disobedience.  
+  *"You were blameless in your ways from the day you were created until unrighteousness was found in you."* (Ezekiel 28:15)  
+  *"When the woman saw that the tree was good for food, and that it was a delight to the eyes... she took from its fruit and ate; and she gave also to her husband with her, and he ate."* (Genesis 3:6)
+
+- **Inherited Sin**:  
+  As descendants of Adam, all people inherit a sinful nature, which inclines them toward sin from birth.  
+  *"Behold, I was brought forth in iniquity, and in sin my mother conceived me."* (Psalm 51:5)  
+  *"There is none righteous, not even one."* (Romans 3:10)
+
+- **Total Depravity**:  
+  Human nature is corrupted by sin in every aspect—mind, will, and emotions—rendering humanity incapable of pleasing God without His grace.  
+  *"The heart is more deceitful than all else and is desperately sick; who can understand it?"* (Jeremiah 17:9)  
+  *"Those who are in the flesh cannot please God."* (Romans 8:8)
+
+### **The Consequences of Sin**
+
+- **Separation from God**:  
+  Sin results in spiritual separation from God, disrupting the relationship that humanity was created to enjoy with Him.  
+  *"But your iniquities have made a separation between you and your God, and your sins have hidden His face from you."* (Isaiah 59:2)
+
+- **Physical and Spiritual Death**:  
+  Sin brings both physical death and eternal spiritual death, which is separation from God's presence in hell.  
+  *"For the wages of sin is death."* (Romans 6:23)  
+  *"These will pay the penalty of eternal destruction, away from the presence of the Lord."* (2 Thessalonians 1:9)
+
+- **Corruption of Creation**:  
+  The effects of sin extend beyond humanity, impacting all of creation, which now suffers under a curse.  
+  *"For the creation was subjected to futility, not willingly, but because of Him who subjected it, in hope."* (Romans 8:20)
+
+### **The Different Types of Sin**
+
+- **Original Sin**:  
+  This refers to the sinful nature inherited from Adam, which corrupts every person at birth.  
+  *"Through one man sin entered into the world, and death through sin, and so death spread to all men."* (Romans 5:12)
+
+- **Personal Sin**:  
+  Individual acts of transgression committed by each person, for which they are accountable.  
+  *"If we say that we have no sin, we are deceiving ourselves and the truth is not in us."* (1 John 1:8)
+
+- **Sins of Commission and Omission**:  
+  Sins of commission are deliberate acts of disobedience, while sins of omission occur when one fails to do what is right.  
+  *"Therefore, to one who knows the right thing to do and does not do it, to him it is sin."* (James 4:17)
+
+### **God’s Provision for Sin**
+
+- **Atonement Through Christ**:  
+  God provided the remedy for sin through the sacrificial death and resurrection of Jesus Christ. His blood covers the sins of all who believe in Him.  
+  *"He Himself bore our sins in His body on the cross, so that we might die to sin and live to righteousness."* (1 Peter 2:24)
+
+- **Confession and Forgiveness**:  
+  Believers are called to confess their sins and seek God's forgiveness, which is freely given in Christ.  
+  *"If we confess our sins, He is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness."* (1 John 1:9)
+
+- **Restoration of the Image of God**:  
+  Through salvation in Christ, the image of God, which was marred by sin, is progressively restored in believers.  
+  *"We all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory."* (2 Corinthians 3:18)
+
+### **Victory Over Sin**
+
+- **Freedom from Sin’s Dominion**:  
+  Believers are no longer slaves to sin but are empowered to live in righteousness through the Holy Spirit.  
+  *"For sin shall not be master over you, for you are not under law but under grace."* (Romans 6:14)
+
+- **Ongoing Sanctification**:  
+  Though the believer is declared righteous in Christ, the process of sanctification continues throughout life as God conforms us to the image of His Son.  
+  *"For this is the will of God, your sanctification."* (1 Thessalonians 4:3)
+
+---
+
 8. What do you believe about salvation?
 9. What do you believe about the Church?
 10. What do you believe about Heaven and Hell?
@@ -318,10 +395,3 @@ I believe in a **pre-tribulation rapture**, a **literal seven-year tribulation**
   - *Revelation 6-19* – Describes the seven-year tribulation.
 
 ---
-
-### **Purpose of Man**
-I believe that the **chief end of man** is to glorify God and enjoy Him forever. My ultimate purpose in life is to worship, serve, and honor God in everything I do, finding my deepest joy in Him.
-- **Scripture References**:
-  - *1 Corinthians 10:31* – "Whatever you do, do all to the glory of God."
-  - *Psalm 73:25-26* – "Whom have I in heaven but You?"
-  - *Romans 11:36* – "For from Him and through Him and to Him are all things."
