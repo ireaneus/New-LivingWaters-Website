@@ -173,9 +173,9 @@ The Holy Spirit empowers believers for service, imparts spiritual gifts, and pro
 
 I believe that God the Father is actively involved in His creation through His sovereign works. These works include creation, providence, redemption, and judgment, all of which display His power, wisdom, and goodness. 
 
-- **Creation**: God spoke the universe into existence, *"In the beginning God created the heavens and the earth"* (Genesis 1:1), and made all things visible and invisible by His Word (Colossians 1:16). He continues to uphold and sustain all creation, *"upholding all things by the word of His power"* (Hebrews 1:3).
+- **Creation**: God spoke the universe into existence, *"In the beginning God created the heavens and the earth"* **(Genesis 1:1)**, and made all things visible and invisible by His Word (Colossians 1:16). He continues to uphold and sustain all creation, *"upholding all things by the word of His power"* **(Hebrews 1:3)**.
 
-- **Providence**: God governs all things, directing and sustaining the course of history according to His sovereign will, *"The Lord has established His throne in the heavens, and His sovereignty rules over all"* (Psalm 103:19). He provides for His creation and ensures that His purposes are fulfilled in all events.
+- **Providence**: I believe that God not only created all things but continues to sustain and govern the universe by His sovereign will. *'He causes the vapors to ascend from the ends of the earth; Who makes lightnings for the rain, Who brings forth the wind from His treasuries.'* **(Psalm 135:7)**
 
 - **Redemption**: In His love, the Father sent His Son to accomplish the work of salvation for humanity, *"For God so loved the world, that He gave His only begotten Son"* (John 3:16). This redemptive work unfolds in history as God calls people to Himself, forgives sins, and adopts believers as His children.
 
@@ -216,59 +216,59 @@ I believe that the **Decrees of God** are His eternal ordinances, established in
 
 ### **What I Believe About Angels**
 
-I believe that angels are spiritual beings created by God to serve as His messengers and to accomplish His will. The term "angel" means "messenger" (Hebrews 1:14), though it can also refer to other roles such as delivering God's messages or worshiping Him. Angels are not eternal; they were created at a specific time by God, *"for by Him all things were created, both in the heavens and on earth, visible and invisible"* (Colossians 1:16), and they existed before humanity was formed, *"when the morning stars sang together and all the sons of God shouted for joy"* (Job 38:7).
+I believe that angels are spiritual beings created by God to serve as His messengers and to accomplish His will. The term "angel" means "messenger," and while it may refer to other functions, it primarily describes their role in delivering God's messages or worshiping Him. *"Are they not all ministering spirits, sent out to render service for the sake of those who will inherit salvation?"* **(Hebrews 1:14)**. Angels were created at a specific time by God, before the creation of humanity, to reflect His glory. *"For by Him all things were created, both in the heavens and on earth, visible and invisible."* **(Colossians 1:16)**. They are not eternal like God but exist as immortal beings. *"For they cannot even die anymore, because they are like angels, and are sons of God, being sons of the resurrection."* **(Luke 20:36)**.
 
-### **Description and Nature of Angels**
-
-- **Spiritual Beings**: Angels are spiritual and do not possess physical bodies, though they can appear in human form (Genesis 19:1-2). They were created by God and are not eternal like God Himself.
-  - *"Are they not all ministering spirits, sent out to render service for the sake of those who will inherit salvation?"* (Hebrews 1:14)
-
-- **Created Before Humanity**: Angels were created before the earth, and they rejoiced at God's creation.
-  - *"When the morning stars sang together and all the sons of God shouted for joy."* (Job 38:7)
-
-- **Created in Great Numbers**: The number of angels is vast and beyond human comprehension.
-  - *"And I heard the voice of many angels around the throne, and the number of them was myriads of myriads, and thousands of thousands."* (Revelation 5:11)
-
-- **Higher Order Than Humans**: Angels were created with a higher status than humans, possessing greater strength and knowledge.
-  - *"What is man that You take thought of him, and the son of man that You care for him? Yet You have made him a little lower than the angels."* (Psalm 8:4-5)
-
-- **Immortality**: Angels do not die; they are immortal beings who will continue to exist for eternity.
-  - *"For they cannot even die anymore, because they are like angels, and are sons of God, being sons of the resurrection."* (Luke 20:36)
+Angels were created in great numbers and existed before the foundation of the world, rejoicing at the creation of the earth. *"When the morning stars sang together and all the sons of God shouted for joy."* **(Job 38:7)**. They are a higher order of beings than humans, possessing greater strength and knowledge. *"What is man that You take thought of him? Yet You have made him a little lower than the angels."* **(Psalm 8:4-5)**. Angels are often referred to as the "Host of Heaven," symbolizing their role in God's heavenly army. *"I saw the Lord sitting on His throne, and all the host of heaven standing on His right and on His left."* **(2 Chronicles 18:18)**.
 
 ### **Roles and Classes of Angels**
 
-- **The Host of Heaven**: Angels are often referred to as the "Host of Heaven," indicating their role in God's heavenly army.
-  - *"I saw the Lord sitting on His throne, and all the host of heaven standing on His right and on His left."* (2 Chronicles 18:18)
-
-- **Named Angels**:
-  - **Michael the Archangel**: Michael is described as a warrior angel, defending God's people.
-    - *"But Michael the archangel, when he disputed with the devil..."* (Jude 1:9)
-  - **Gabriel**: Gabriel is often associated with delivering important messages from God.
-    - *"And the angel answered and said to him, 'I am Gabriel, who stands in the presence of God, and I have been sent to speak to you and to bring you this good news.'"* (Luke 1:19)
-
-- **Seraphim**: Seraphim are angels that worship God and guard the divine throne.
-  - *"Seraphim stood above Him, each having six wings... and one called out to another and said, 'Holy, Holy, Holy, is the Lord of hosts, the whole earth is full of His glory.'"* (Isaiah 6:2-3)
-
-- **Cherubim**: Cherubim are often associated with guarding sacred places, such as the Garden of Eden.
-  - *"So He drove the man out; and at the east of the garden of Eden He stationed the cherubim and the flaming sword which turned every direction to guard the way to the tree of life."* (Genesis 3:24)
+- **Michael the Archangel** is a warrior angel who defends God's people.  
+  *"But Michael the archangel, when he disputed with the devil..."* **(Jude 1:9)**.
+- **Gabriel** is a messenger angel, delivering significant announcements.  
+  *"I am Gabriel, who stands in the presence of God, and I have been sent to speak to you and to bring you this good news."* **(Luke 1:19)**.
+- **Seraphim** worship God and guard His throne.  
+  *"Seraphim stood above Him, each having six wings... and one called out to another and said, 'Holy, Holy, Holy, is the Lord of hosts.'"* **(Isaiah 6:2-3)**.
+- **Cherubim** guard sacred places, such as the Garden of Eden.  
+  *"So He drove the man out; and at the east of the garden of Eden He stationed the cherubim."* **(Genesis 3:24)**.
 
 ### **Destiny of Angels**
 
-- **Eternal Existence**: Angels will live forever, either in the presence of God or in the Lake of Fire for those who rebelled.
-  - *"Depart from Me, accursed ones, into the eternal fire which has been prepared for the devil and his angels."* (Matthew 25:41)
-
-### **The Origin and Purpose of Angels**
-
-- **Created by God for His Glory**: Angels were created to serve God and bring Him glory.
-  - *"You alone are the Lord. You have made the heavens, the heaven of heavens with all their host, the earth and all that is on it."* (Nehemiah 9:6)
-
-- **Messengers and Servants**: They serve as messengers of God’s will and assist in carrying out His commands.
-  - *"The angel of the Lord encamps around those who fear Him, and rescues them."* (Psalm 34:7)
+Angels will live eternally, either in God's presence or, for the fallen angels, in the Lake of Fire. *"Depart from Me, accursed ones, into the eternal fire which has been prepared for the devil and his angels."* **(Matthew 25:41)**.
 
 ---
 
-5. What do you believe about Satan?
-6. What do you believe about the nature of man?
+### **What I Believe About Satan**
+
+I believe that Satan is a real and personal being, a fallen angel who opposes God and His purposes. He is described as *"a murderer from the beginning... and the father of lies."* **(John 8:44)**. Satan's name means "adversary," reflecting his role in opposing God's work, while other titles, such as "the devil" (slanderer) and "Beelzebub" (lord of the flies), emphasize his malicious nature.
+
+### **Satan's Origin and Fall**
+
+Satan was originally created as a beautiful and powerful angel, endowed with wisdom and splendor. *"You were the seal of perfection, full of wisdom and perfect in beauty."* **(Ezekiel 28:12-13)**. However, pride led to his rebellion, as he sought to elevate himself above God. *"Your heart was lifted up because of your beauty; you corrupted your wisdom by reason of your splendor."* **(Ezekiel 28:17)**. He led a rebellion in heaven, deceiving a third of the angels to join him, who then became his demons. *"His tail swept away a third of the stars of heaven and threw them to the earth."* **(Revelation 12:4)**.
+
+### **Satan's Power and Limitations**
+
+Though Satan possesses significant power, he is not omnipotent, omnipresent, or omniscient. His abilities are limited by God's sovereign control. *"The Lord said to Satan, 'Behold, all that he has is in your power, only do not put forth your hand on him.'"* **(Job 1:12)**. Believers can resist Satan by submitting to God. *"Submit therefore to God. Resist the devil and he will flee from you."* **(James 4:7)**.
+
+### **The Evil Angels – Demons**
+
+Demons are fallen angels who followed Satan in his rebellion. They can influence the minds of people, deceive nations, and cause harm. *"The god of this world has blinded the minds of the unbelieving."* **(2 Corinthians 4:4)**. Despite their power, demons and Satan are ultimately subject to Christ's authority.
+
+### **The Defeat of Satan**
+
+Satan's defeat was accomplished through Christ's death and resurrection. *"The ruler of this world has been judged."* **(John 16:11)**. His final destiny is the Lake of Fire, where he and his demons will suffer forever. *"And the devil who deceived them was thrown into the lake of fire and brimstone."* **(Revelation 20:10)**.
+
+---
+
+### **What I Believe About the Nature of Man**
+
+I believe that humanity was created uniquely by God in His image, known as the **Imago Dei**. *"Then God said, 'Let Us make man in Our image, according to Our likeness; and let them rule over the fish of the sea and over the birds of the sky.'"* **(Genesis 1:26-27)**. This image is not a literal or exact representation but reflects God's attributes in a finite and limited way. Humans were created with the capacity for knowledge, righteousness, and holiness, and given the responsibility to exercise dominion over creation. *"What is man that You take thought of him, and the son of man that You care for him? Yet You have made him a little lower than the angels, and You crown him with glory and majesty!"* **(Psalm 8:4-5)**.
+
+Though created in God's likeness, this image has been marred by sin but not destroyed. The **Imago Dei** encompasses intellectual, spiritual, moral, and social aspects of our nature. *"Put on the new self, which in the likeness of God has been created in righteousness and holiness of the truth."* **(Ephesians 4:24)**. *"Do not lie to one another, since you laid aside the old self with its evil practices, and have put on the new self who is being renewed to a true knowledge according to the image of the One who created him."* **(Colossians 3:9-10)**.
+
+In our original state, Adam and Eve were without sin and enjoyed a perfect relationship with God. *"Then the Lord God formed man of dust from the ground, and breathed into his nostrils the breath of life; and man became a living being."* **(Genesis 2:7)**. *"So the Lord God caused a deep sleep to fall upon the man, and he slept; then He took one of his ribs and closed up the flesh at that place."* **(Genesis 2:21-22)**. Man's nature consisted of both a physical body and an immaterial soul or spirit, with some theologians suggesting a trichotomous nature. *"Now may the God of peace Himself sanctify you entirely; and may your spirit and soul and body be preserved complete, without blame at the coming of our Lord Jesus Christ."* **(1 Thessalonians 5:23)**.
+
+However, through the Fall, humanity's moral and spiritual likeness to God has been corrupted, resulting in the universal sinfulness of all people. *"For all have sinned and fall short of the glory of God."* **(Romans 3:23)**. Yet, through Christ, the image of God is being restored in believers, and it will be perfected at His return. *"But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as from the Lord, the Spirit."* **(2 Corinthians 3:18)**. *"Just as we have borne the image of the earthy, we will also bear the image of the heavenly."* **(1 Corinthians 15:49)**.
+
 7. What do you believe about sin?
 8. What do you believe about salvation?
 9. What do you believe about the Church?
@@ -304,6 +304,10 @@ I believe that "Salvation is by grace alone, through faith alone, in Christ alon
   - *Titus 3:5* – "He saved us... according to His mercy, by the washing of regeneration."
   - *Romans 5:1* – "Therefore, having been justified by faith, we have peace with God."
 
+### **Salvation**
+Salvation is a gift of **God's grace** through faith in **Jesus Christ alone**. It is not based on human works but on the redemptive work of Christ. Believers are justified by faith and adopted as children of God.
+- **Key Scriptures**: Ephesians 2:8-9; Romans 3:23-24; John 3:16
+
 ---
 
 ### **Eschatology (End Times)**
@@ -321,9 +325,3 @@ I believe that the **chief end of man** is to glorify God and enjoy Him forever.
   - *1 Corinthians 10:31* – "Whatever you do, do all to the glory of God."
   - *Psalm 73:25-26* – "Whom have I in heaven but You?"
   - *Romans 11:36* – "For from Him and through Him and to Him are all things."
-
----
-
-### **Salvation**
-Salvation is a gift of **God's grace** through faith in **Jesus Christ alone**. It is not based on human works but on the redemptive work of Christ. Believers are justified by faith and adopted as children of God.
-- **Key Scriptures**: Ephesians 2:8-9; Romans 3:23-24; John 3:16
