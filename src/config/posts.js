@@ -33,14 +33,14 @@ export const postFiles = [
     slug: 'first-peter-post',
     title: '1 Peter',
     date: 'July 20, 2024',
-    category: 'devotionals'
+    category: 'sermons'
   },
   {
     file: '/posts/WitnessSeenHeard.md',
     slug: 'witness-post',
     title: 'Witness Seen and Heard',
     date: 'July 21, 2024',
-    category: 'articles'
+    category: 'devotionals'
   },
   {
     file: '/posts/HeLaughs.md',
