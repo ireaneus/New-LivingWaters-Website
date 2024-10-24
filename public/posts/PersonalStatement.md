@@ -110,18 +110,18 @@ God’s holiness is reflected individually in each person of the Trinity, reveal
 ---
 
 ### The Nature of God: God the Father
-God the Father, the first person of the Trinity, is the sovereign Creator of all things. "For us there is but one God, the Father, from whom are all things and we exist for Him." (1 Corinthians 8:6). He ordains all things according to His will and purpose, exercising authority over all creation, providence, and redemption. His fatherhood is twofold: He is the Creator and Father of all humanity, "one God and Father of all who is over all and through all and in all." (Ephesians 4:6), but He is the spiritual Father only to those who are in Christ, having adopted them into His family through faith, "For all who are being led by the Spirit of God, these are sons of God." (Romans 8:14).
+God the Father, the first person of the Trinity, is the sovereign Creator of all things. *"For us there is but one God, the Father, from whom are all things and we exist for Him."* **(1 Corinthians 8:6)**. He ordains all things according to His will and purpose, exercising authority over all creation, providence, and redemption. His fatherhood is twofold: He is the Creator and Father of all humanity, **"one God and Father of all who is over all and through all and in all."** **(Ephesians 4:6)**, but He is the spiritual Father only to those who are in Christ, having adopted them into His family through faith, *"For all who are being led by the Spirit of God, these are sons of God."* **(Romans 8:14)**.
 
-God the Father has decreed all things for His glory and continually upholds and governs all creatures and events, "Yours, O Lord, is the greatness and the power… indeed everything that is in the heavens and the earth." (1 Chronicles 29:11). In His holiness, He neither authors nor approves of sin, "Your eyes are too pure to approve evil." (Habakkuk 1:13), and He preserves the moral accountability of His creation. From eternity past, He graciously chose those whom He would adopt as His children, "to the praise of the glory of His grace." (Ephesians 1:6), blessing them with every spiritual blessing in Christ, "just as He chose us in Him before the foundation of the world, that we would be holy and blameless before Him." (Ephesians 1:4).
+God the Father has decreed all things for His glory and continually upholds and governs all creatures and events, *"Yours, O Lord, is the greatness and the power… indeed everything that is in the heavens and the earth."* **(1 Chronicles 29:11)**. In His holiness, He neither authors nor approves of sin, *"Your eyes are too pure to approve evil."* **(Habakkuk 1:13)**, and He preserves the moral accountability of His creation. From eternity past, He graciously chose those whom He would adopt as His children, *"to the praise of the glory of His grace."* **(Ephesians 1:6)**, blessing them with every spiritual blessing in Christ, *"just as He chose us in Him before the foundation of the world, that we would be holy and blameless before Him."* **(Ephesians 1:4)**.
 
 ---
 
 ### The Nature of God: God the Son
-I believe that Jesus Christ, the second person of the Trinity, is fully God and fully man, possessing two distinct natures in one person. He is the eternal Son of God, "In the beginning was the Word, and the Word was with God, and the Word was God" (John 1:1). Through Him, all things were created, and He is the radiance of God’s glory, "upholding all things by the word of His power" (Hebrews 1:3).
+I believe that Jesus Christ, the second person of the Trinity, is fully God and fully man, possessing two distinct natures in one person. He is the eternal Son of God, *"In the beginning was the Word, and the Word was with God, and the Word was God"* **(John 1:1)**. *Through Him, all things were created, and He is the radiance of God’s glory, "upholding all things by the word of His power"* **(Hebrews 1:3)*.
 
-Jesus was born of a virgin (Matthew 1:23), lived a sinless life, and fulfilled the Law perfectly. He willingly went to the cross, "bearing our sins in His body on the tree" (1 Peter 2:24), and died as a substitutionary atonement for humanity’s sins. He rose bodily from the dead on the third day, "according to the Scriptures" (1 Corinthians 15:3-4), conquering sin and death, and ascended into heaven, where He is seated at the right hand of the Father (Hebrews 1:3).
+Jesus was born of a virgin (Matthew 1:23), lived a sinless life, and fulfilled the Law perfectly. He willingly went to the cross, *"bearing our sins in His body on the tree"* **(1 Peter 2:24)**, and died as a substitutionary atonement for humanity’s sins. He rose bodily from the dead on the third day, *"according to the Scriptures"* **(1 Corinthians 15:3-4)**, *conquering sin and death, and ascended into heaven, where He is seated at the right hand of the Father* **(Hebrews 1:3)**.
 
-Christ will return to judge the living and the dead, establishing His eternal kingdom, "for He must reign until He has put all His enemies under His feet" (1 Corinthians 15:25).
+Christ will return to judge the living and the dead, establishing His eternal kingdom, *"for He must reign until He has put all His enemies under His feet"* **(1 Corinthians 15:25)**.
 
 #### Key Roles and Attributes of God the Son:
 - **Eternal Sonship: Jesus is eternally God, distinct in person, but equal in essence with the Father.**  
@@ -395,3 +395,4 @@ I believe in a **pre-tribulation rapture**, a **literal seven-year tribulation**
   - *Revelation 6-19* – Describes the seven-year tribulation.
 
 ---
+
